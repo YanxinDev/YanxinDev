@@ -5,6 +5,7 @@
 - 📫 How to reach me :no way
 - 😄 Pronouns: Idk 
 - ⚡ Fun fact: nothing here
+- 🎹 In case you don't know,I'm also a hiphop beatmaker/producer haha!
 
 <!---
 MartinYan1001/MartinYan1001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
